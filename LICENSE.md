@@ -1,4 +1,4 @@
-
+king legacy top Script is the best king legacy Script, featuring instant win and esp. Safe and powerful for all your needs.
 
 
 
